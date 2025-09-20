@@ -10,5 +10,6 @@
 - **任务拆解案.pdf**  
 
 ## 联系方式
-- Email: yiman@outlook.com  
+- Wechat: BigPMAN
+- Email: yiman0425@outlook.com  
 
